@@ -1,1 +1,1 @@
-# KCD2Mod
+Mercy
